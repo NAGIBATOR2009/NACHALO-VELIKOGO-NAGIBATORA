@@ -1,0 +1,2 @@
+# NACHALO-VELIKOGO-NAGIBATORA
+asdfghjkl;vajkgiorgeroutgertqguqeriotg;lkerlkhgeriogrfg;ldrtyhisg'ojgqehrghehryeryejrtkertherthertkjerkgjhgebrgjbrbgbtbgm,sdfg
